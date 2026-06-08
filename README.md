@@ -34,4 +34,4 @@ Software Developer in training at **Riwi** and a passionate language enthusiast.
 
 * 📧 **IF YOU HAVE ANY PROJECT IDEAS, SEND ME AN EMAIL AT:** [aragonmau0@gmail.com](mailto:aragonmau0@gmail.com)
 * 💼 **MY GITHUB PROFILE:** [https://github.com/Maryuris-01](https://github.com/Maryuris-01)
-* 🌐 **LET'S CONNECT ON LINKEDIN:** [Insert your link here]
+ 
